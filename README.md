@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tarleyann
-- 👀 I’m interested in busting scammers!
+- 👀 I’m interested in learning anything I can here!
 - 🌱 I’m currently learning Information Technology with a focus on Cybersecurity
-- 💞️ I’m looking to collaborate on any scam busts!
+- 💞️ I’m looking to collaborate on any scam busts! 
 - 📫 How to reach me rockinmommy09@gmail.com
 
 <!---
